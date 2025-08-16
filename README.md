@@ -15,7 +15,7 @@ Meu nome é _Sofia_
 
 -Eu faço natação 🏊‍♀️
 
--Tenho 15 anos
+-Tenho 16 anos
 
 -E adoro ler 📖
 
